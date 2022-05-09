@@ -1,4 +1,4 @@
-i saw ingi and dukkeoy has skidded this tool and just gave them selves credits? 
+i saw ingi and kosmo has skidded this tool and just gave them selves credits? 
 but WTF? 
 it isnt theres? its just gang nuker
 
